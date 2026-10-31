@@ -1,1 +1,1 @@
-# github-collaboration-practice
+# Davit Tsamalaidze
